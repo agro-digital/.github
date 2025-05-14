@@ -1,4 +1,1 @@
-# GitHub AGRODIGITAL SAS
-
-![image](https://github.com/user-attachments/assets/1299b327-7ad7-411f-b0eb-81f3692e1e60) Hi there 👋
-
+![image](https://github.com/user-attachments/assets/b6e1c4fc-63db-4587-acb7-0c259a1c5c3f)
